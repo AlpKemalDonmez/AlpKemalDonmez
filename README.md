@@ -1,4 +1,4 @@
-### May the force be with you.. 💬
+### May the force be with you..
 
 Alp Kemal Donmez
 
