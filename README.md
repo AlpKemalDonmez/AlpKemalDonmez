@@ -1,6 +1,6 @@
-### May the force be with you..
+### No ... I am your father...
 
-Alp Kemal Donmez
+You have controlled your fear. Noe, release your anger. Only your hatred can destroy me.
 
 ![59190](https://github.com/AlpKemalDonmez/AlpKemalDonmez/assets/150040510/1b506938-cb81-4932-a1a9-4683768faee8)
 
