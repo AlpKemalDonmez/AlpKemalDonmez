@@ -1,6 +1,6 @@
 ### No... I am your father...
 
-You have controlled your fear. Now, release your anger. Only your hatred can destroy me.
+You have controlled your fear.. Now, release your anger.. Only your hatred can destroy me...
 
 ![59190](https://github.com/AlpKemalDonmez/AlpKemalDonmez/assets/150040510/1b506938-cb81-4932-a1a9-4683768faee8)
 
