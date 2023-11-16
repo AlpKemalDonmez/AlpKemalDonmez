@@ -2,7 +2,7 @@
 
 You have controlled your fear.. Now, release your anger.. Only your hatred can destroy me...
 <p align="center">
-  <img width="1000" height="600" resolution="2000" src="https://i.makeagif.com/media/3-15-2017/DrqwZd.gif">
+  <img width="1000" height="500" resolution="2000" src="https://i.makeagif.com/media/3-15-2017/DrqwZd.gif">
 </p>
 
 <!--
