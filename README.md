@@ -1,10 +1,12 @@
 ### No... I am your father...
 
 You have controlled your fear.. Now, release your anger.. Only your hatred can destroy me...
-
-![59190](https://github.com/AlpKemalDonmez/AlpKemalDonmez/assets/150040510/1b506938-cb81-4932-a1a9-4683768faee8)
+<p align="center">
+  <img width="1000" height="600" resolution="2000" src="https://i.makeagif.com/media/3-15-2017/DrqwZd.gif">
+</p>
 
 <!--
+
 **AlpKemalDonmez/AlpKemalDonmez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
